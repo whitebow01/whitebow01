@@ -6,3 +6,6 @@
 
 - ⚡ Fun fact: I play league of legends and also apex
 - I love cinema. I would watch any series or movie that you recommend.
+
+  
+- ENARMORANDOME MAS DE LAS MATEMATICAS WHAT
